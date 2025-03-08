@@ -1,0 +1,1 @@
+# veronikalia_ningsih_tugas_2
